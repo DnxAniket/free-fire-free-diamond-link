@@ -4,6 +4,8 @@ Free Fire is one of the most popular battle royale games in the world, and diamo
 What is a Free Fire Diamond Redeem Code?
 A Free Fire diamond redeem code is a special alphanumeric code that can be redeemed on the official Free Fire rewards website. These codes offer various in-game rewards, including diamonds, which you can use to purchase items in the store. Players can find these codes through official Garena events, social media giveaways, or special promotions.
 
+**Click Here to Get**: [free fire free diamond link](https://armanfiles.com/635185)
+
 How to Get a Free Fire 1000 Diamonds Redeem Code?
 To get a Free Fire 1000 diamonds redeem code, you can follow these steps:
 
